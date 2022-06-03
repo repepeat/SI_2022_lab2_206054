@@ -1,1 +1,1 @@
-# SI_2022_lab2_206054
+Petar Stojanoski 206054
